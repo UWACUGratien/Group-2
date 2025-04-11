@@ -1,2 +1,7 @@
 # Group 2
 ## Gratien UWACU - 2309001514
+## Furaha Berthille -2401500879
+## HASINGIZWIMANA Paul - 25011105
+## HABINSHUTI Elise - 2405000464
+## SHEMA Fred - 2405000879
+
